@@ -8,3 +8,5 @@
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1020053250654879856/screenshot441.png) 
 # [Reverse Mix v2](https://www.mediafire.com/file/ui2dh3qpyj3ipkf/ReverseMix_v2.osk/file) 
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1020068343627137134/screenshot442.png)
+# [Reverse Mix v3](https://www.mediafire.com/file/d0lh8ueyl6or7t8/ReverseMix_v3.osk/file) 
+![](https://cdn.discordapp.com/attachments/707468869727682593/1020101559671083049/screenshot446.png)
